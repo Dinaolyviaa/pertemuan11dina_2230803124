@@ -1,0 +1,1 @@
+# pertemuan11dina_2230803124
